@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Edit-R
+- 👀 I’m interested in Arts and Media
+- 🌱 I’m currently learning how to build a website by my own
+- 💞️ I’m looking to collaborate on a future art project
+- 📫 You can check my insta @c14.vi
